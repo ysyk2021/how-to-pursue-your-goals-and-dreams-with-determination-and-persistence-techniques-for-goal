@@ -3,11 +3,6 @@ Strategies for Positive Self-Talk, Visualization, and Affirmations
 
 Cultivating a positive mindset and habits is crucial for achieving goals and pursuing dreams with determination and persistence. In this chapter, we will explore strategies for positive self-talk, visualization, and affirmations.
 
-What is a Positive Mindset?
----------------------------
-
-A positive mindset involves focusing on the positive aspects of life and having an optimistic outlook. It involves reframing negative thoughts and beliefs into positive ones and cultivating a sense of gratitude and appreciation.
-
 Strategies for Positive Self-Talk
 ---------------------------------
 

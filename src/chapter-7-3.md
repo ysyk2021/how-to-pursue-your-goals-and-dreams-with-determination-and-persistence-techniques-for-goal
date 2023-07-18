@@ -3,11 +3,6 @@ The Benefits of Navigating Failure and Rejection for Determination and Persisten
 
 Navigating failure and rejection is an inevitable part of pursuing goals and dreams. In this chapter, we will explore the benefits of navigating failure and rejection for determination and persistence.
 
-What is Failure and Rejection?
-------------------------------
-
-Failure refers to not achieving a desired outcome or goal, while rejection refers to being turned down or not accepted for something.
-
 The Benefits of Navigating Failure and Rejection
 ------------------------------------------------
 
