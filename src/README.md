@@ -1,4 +1,4 @@
-# Introduction
+
 
 Have you ever had a dream or goal that you were passionate about, but struggled to achieve? It's not uncommon to feel overwhelmed or discouraged when pursuing our aspirations. However, with determination and persistence, we can overcome obstacles and achieve our goals.
 
@@ -11,3 +11,7 @@ Whether you're striving for personal growth, career advancement, or simply looki
 So, let's get started on the journey toward achieving your goals and pursuing your dreams!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

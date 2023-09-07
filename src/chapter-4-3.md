@@ -1,5 +1,3 @@
-The Benefits of Positive Mindset and Habits for Determination and Persistence
-=================================================================================================================================
 
 Cultivating a positive mindset and habits is crucial for achieving goals and pursuing dreams with determination and persistence. In this chapter, we will explore the benefits of positive mindset and habits for determination and persistence.
 

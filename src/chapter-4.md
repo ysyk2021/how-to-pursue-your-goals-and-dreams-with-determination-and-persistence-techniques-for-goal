@@ -1,5 +1,3 @@
-Chapter 4: Cultivating Positive Mindset and Habits
-==================================================
 
 Cultivating a positive mindset and habits is crucial for achieving goals and pursuing dreams with determination and persistence. In this chapter, we will explore techniques and strategies for cultivating positive mindsets and habits.
 

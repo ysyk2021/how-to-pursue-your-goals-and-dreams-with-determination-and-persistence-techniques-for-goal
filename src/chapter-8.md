@@ -1,5 +1,3 @@
-Chapter 8: Seeking Feedback and Continuous Improvement
-======================================================
 
 Achieving goals and pursuing dreams requires determination and persistence. In this chapter, we will explore the benefits of seeking feedback and continuous improvement.
 

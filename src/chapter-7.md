@@ -1,5 +1,3 @@
-Chapter 7: Navigating Failure and Rejection
-===========================================
 
 Navigating Failure and Rejection
 --------------------------------

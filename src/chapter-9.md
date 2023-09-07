@@ -1,5 +1,3 @@
-Chapter 9: Balancing Goals and Self-Care
-========================================
 
 Balancing Goals and Self-Care
 -----------------------------

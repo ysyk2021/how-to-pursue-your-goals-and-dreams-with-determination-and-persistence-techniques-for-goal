@@ -1,5 +1,3 @@
-Strategies for Resilience, Perseverance, and Grit
-=================================================================================================
 
 Overcoming obstacles and challenges is a critical part of pursuing goals and dreams with determination and persistence. In this chapter, we will explore strategies for resilience, perseverance, and grit.
 

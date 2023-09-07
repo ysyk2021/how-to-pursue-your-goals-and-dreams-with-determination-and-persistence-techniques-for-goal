@@ -42,3 +42,4 @@
   - [The Benefits of Achieving Success and Celebrating Accomplishments for Determination and Persistence](chapter-10-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

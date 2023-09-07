@@ -1,5 +1,3 @@
-Strategies for SMART Goal Setting and Action Planning
-===================================================================================================================
 
 Setting clear goals and creating a plan of action are essential steps towards achieving our goals and dreams with determination and persistence. In this chapter, we will explore strategies for setting SMART goals and creating an effective action plan.
 

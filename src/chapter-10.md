@@ -1,5 +1,3 @@
-Chapter 10: Achieving Success and Celebrating Accomplishments
-=============================================================
 
 Achieving success is the ultimate goal of pursuing your dreams and goals. However, it's important to celebrate the accomplishments along the way to keep motivated and inspired.
 

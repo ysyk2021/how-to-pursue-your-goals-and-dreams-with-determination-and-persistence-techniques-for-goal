@@ -1,5 +1,3 @@
-Chapter 2: Setting Goals and Creating a Plan for Achievement
-============================================================
 
 Setting goals and creating a plan for achievement is crucial for pursuing goals and dreams with determination and persistence. In this chapter, we will explore strategies for setting SMART goals and action planning, as well as the benefits of goal setting and planning for determination and persistence.
 
