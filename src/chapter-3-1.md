@@ -1,5 +1,4 @@
-Chapter 21: Techniques for Overcoming Obstacles and Challenges
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of your goals and dreams with determination and persistence, you will inevitably face obstacles and challenges. This chapter explores practical techniques and strategies to help you navigate and overcome these hurdles effectively.
 

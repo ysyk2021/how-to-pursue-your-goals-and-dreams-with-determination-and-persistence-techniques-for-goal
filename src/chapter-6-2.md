@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Building Connections, Collaborations, and Support Systems
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Achieving your goals and realizing your dreams often requires more than just determination and persistence; it also relies on the strength of your connections, collaborations, and support systems. In this chapter, we'll explore effective strategies for building and nurturing these vital elements that can propel you towards goal achievement and success.
 

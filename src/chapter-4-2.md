@@ -1,5 +1,4 @@
-Chapter 12: Strategies for Positive Self-Talk, Visualization, and Affirmations
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Positive self-talk, visualization, and affirmations are powerful tools that can fuel your determination and persistence on the path to achieving your goals and realizing your dreams. In this chapter, we'll explore techniques and strategies to harness the potential of these mental practices, turning them into valuable assets for your journey to success.
 

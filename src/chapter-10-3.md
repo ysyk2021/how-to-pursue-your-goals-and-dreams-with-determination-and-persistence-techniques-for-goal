@@ -1,5 +1,4 @@
-Chapter 22: The Benefits of Achieving Success and Celebrating Accomplishments for Determination and Persistence
-===============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In your journey to pursue your goals and dreams with unwavering determination and persistence, the ultimate destination is achieving success. This chapter explores the significant benefits of reaching your goals and the importance of celebrating your accomplishments along the way, both of which serve as powerful motivators to sustain your determination and persistence.
 

@@ -1,5 +1,4 @@
-Chapter 20: The Benefits of Overcoming Obstacles and Challenges for Determination and Persistence
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of your goals and dreams with unwavering determination and persistence, obstacles and challenges are not roadblocks but opportunities for growth. This chapter explores the profound benefits that arise from overcoming adversity, reinforcing your determination and persistence.
 

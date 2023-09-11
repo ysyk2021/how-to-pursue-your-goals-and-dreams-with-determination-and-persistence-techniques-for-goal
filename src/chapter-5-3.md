@@ -1,5 +1,4 @@
-Chapter 14: The Benefits of Time Management and Productivity for Determination and Persistence
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Time management and productivity are essential tools for harnessing determination and persistence on your journey towards achieving your goals and dreams. In this chapter, we will explore how effective time management and increased productivity can significantly contribute to your success.
 

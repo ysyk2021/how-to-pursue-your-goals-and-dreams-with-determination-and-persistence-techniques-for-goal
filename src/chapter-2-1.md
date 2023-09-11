@@ -1,5 +1,4 @@
-Chapter 13: Setting Goals and Creating a Plan for Achievement
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting clear goals and creating a well-defined plan are fundamental steps in the pursuit of your dreams and the achievement of your objectives. In this chapter, we will explore the importance of setting goals, the principles of effective goal-setting, and how to develop a comprehensive plan to turn your dreams into reality.
 

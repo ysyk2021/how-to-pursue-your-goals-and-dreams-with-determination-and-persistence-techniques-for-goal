@@ -1,5 +1,4 @@
-Chapter 28: Seeking Feedback and Continuous Improvement
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the relentless pursuit of your goals and dreams with determination and persistence, the twin practices of seeking feedback and committing to continuous improvement serve as guiding stars on your journey. This chapter delves into the significance of these practices and provides actionable strategies for implementing them effectively.
 

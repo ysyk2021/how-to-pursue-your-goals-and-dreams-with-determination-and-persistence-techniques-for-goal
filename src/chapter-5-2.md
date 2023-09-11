@@ -1,5 +1,4 @@
-Chapter 16: Strategies for Prioritization, Task Management, and Efficiency
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To pursue your goals and dreams with determination and persistence, effective prioritization, task management, and efficiency are essential skills. In this chapter, we will explore strategies to help you make the most of your time and resources, ensuring you stay on track towards achieving your aspirations.
 

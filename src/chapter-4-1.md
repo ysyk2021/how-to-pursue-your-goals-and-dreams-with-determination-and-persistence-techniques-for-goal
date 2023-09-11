@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Cultivating Positive Mindsets and Habits
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Achieving your goals and pursuing your dreams demands more than just determination and persistence; it also hinges on fostering positive mindsets and habits. In this chapter, we'll explore effective techniques to cultivate the mental attitudes and behaviors that will propel you toward your goals and pave the way for success.
 

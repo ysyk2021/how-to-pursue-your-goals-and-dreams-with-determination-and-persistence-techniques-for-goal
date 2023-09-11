@@ -1,5 +1,4 @@
-Chapter 26: Strategies for Constructive Criticism, Reflection, and Skill Development
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of your goals and dreams with determination and persistence, the ability to accept constructive criticism, engage in self-reflection, and continually develop your skills is paramount. This chapter explores effective strategies to harness these practices for goal achievement and success.
 

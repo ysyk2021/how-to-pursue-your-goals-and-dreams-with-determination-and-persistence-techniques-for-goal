@@ -1,5 +1,4 @@
-Chapter 24: Strategies for Maintaining a Healthy Lifestyle, Relationships, and Well-being
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In your pursuit of goals and dreams with determination and persistence, it's crucial to maintain a healthy balance in your life. This chapter explores strategies for nurturing your physical and mental well-being, fostering positive relationships, and sustaining a healthy lifestyle to support your journey towards goal achievement and success.
 

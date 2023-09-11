@@ -1,5 +1,4 @@
-Chapter 15: Navigating Failure and Rejection
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Failure and rejection are inevitable parts of any journey toward achieving your goals and dreams. In this chapter, we'll explore how to navigate these challenging moments with determination and persistence, turning setbacks into opportunities for growth and success.
 

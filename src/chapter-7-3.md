@@ -1,5 +1,4 @@
-Chapter 18: The Benefits of Navigating Failure and Rejection for Determination and Persistence
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In your pursuit of goals and dreams with determination and persistence, encountering failure and rejection is not a detour but an integral part of the journey. In this chapter, we will delve into the profound benefits that come from navigating failure and rejection, highlighting how these experiences can fortify your determination and persistence.
 

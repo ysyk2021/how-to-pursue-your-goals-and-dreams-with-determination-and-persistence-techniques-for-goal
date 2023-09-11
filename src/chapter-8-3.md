@@ -1,5 +1,4 @@
-Chapter 27: The Benefits of Seeking Feedback and Continuous Improvement for Determination and Persistence
-=========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest to pursue your goals and dreams with determination and persistence, the willingness to seek feedback and commit to continuous improvement is a pivotal aspect of your journey. This chapter explores the substantial advantages of embracing feedback and perpetually enhancing your skills to fuel your determination and persistence.
 

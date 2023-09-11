@@ -1,5 +1,4 @@
-Chapter 11: Techniques for Effective Communication and Networking
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication and networking are invaluable skills on the path to achieving your goals and realizing your dreams. In this chapter, we will delve into practical techniques and strategies that will help you become a more adept communicator and a skillful networker, enhancing your ability to connect with others, seize opportunities, and ultimately succeed.
 

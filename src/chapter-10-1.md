@@ -1,5 +1,4 @@
-Chapter 23: Achieving Success and Celebrating Accomplishments
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Achieving success in the pursuit of your goals and dreams with determination and persistence is a monumental achievement. This chapter delves into the exhilarating experience of reaching your goals and the importance of celebrating your accomplishments.
 

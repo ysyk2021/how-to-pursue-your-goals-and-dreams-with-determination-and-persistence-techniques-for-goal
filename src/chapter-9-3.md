@@ -1,5 +1,4 @@
-Chapter 25: The Benefits of Balancing Goals and Self-Care for Determination and Persistence
-===========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the relentless pursuit of your goals and dreams with determination and persistence, it's easy to neglect self-care. However, this chapter highlights the undeniable advantages of striking a balance between your aspirations and your well-being, demonstrating that self-care is not a hindrance but a catalyst for determination and persistence.
 

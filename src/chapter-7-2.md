@@ -1,5 +1,4 @@
-Chapter 17: Strategies for Resilience and Learning from Setbacks
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resilience and the ability to learn from setbacks are critical qualities on the path to achieving your goals and dreams with determination and persistence. In this chapter, we'll explore strategies to help you bounce back from setbacks and turn them into valuable learning experiences.
 

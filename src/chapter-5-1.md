@@ -1,5 +1,4 @@
-Chapter 19: Techniques for Time Management and Productivity
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective time management and productivity are essential skills for pursuing your goals and dreams with determination and persistence. In this chapter, we will explore various techniques and strategies to help you make the most of your time and achieve your goals efficiently.
 
